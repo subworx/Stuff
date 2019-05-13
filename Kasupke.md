@@ -1188,3 +1188,21 @@ Nachtijall, ick hör dir trappsen. Die Friedrichstraße soll im Somma an den Woc
 
 ---
 
+`10.05.2019, 23:25`
+
+Jeld allene macht ooch nich jlücklich, aba et beruhicht doch unjemein. Leida schmilzt dank der Null-Zins-Politik von olle Draghi unsa bescheidena Sparjroschen wie Butta inne Sonne. Da kann nur noch Fortuna helfen: Im Eurojackpot jibs 90 Milljonen zu jewinnen! Siebenmal muss ick die richtijen Zahln ankreuzen - und schon bin ick alle Sorjen los! Immahin stehn die Chancen eens zu 95 Milljonen. Beim normalen Lotto sind’s eens zu 140 Millionen. Det is aba imma noch bessa als beim BER – da jibs null Chancen, det der 2020 eröffnet wird…
+
+---
+
+`12.05.2019, 06:00`
+
+Hamse dran jedacht, det heute Muttatach is? Wenn nich’: ab zur Tanke, da jib’s noch ‘n paar Sträuße. Wenn Trude det liest, krieg ick eens übajebraten. Ick hab Schwiejamutta natürlich schon wat Schönet fürn Balkon besorcht. Nachher fahrn wa zum Käffchen in ihre Laube. Villeicht jibs ooch noch Kompott mit selbst jeerntetem Obst – unjespritzt natürlich. Bei ihr wern ooch keene Lebensmittel wegjeschmissen, Schalen und Jemüse-Abfälle kommen uffn Kompost und det Hasenbrot wird bis zum letzten Kanten uffjejessen. Wer wie meene Schwiejamutta die Nachkriegszeit im ausjebombten Berlin erlebt hat, weeß zu schätzen, watta hat - in jeda Hinsicht.
+
+---
+
+`12.05.2019, 18:36`
+
+Am Sonntach war’n wa bei Schwiejamutta zum Muttatachskäffchen. Da hab’n wa lange üba die Luftbrücke jeredet. Kann man sich heute kaum noch vorstell’n: Nüscht zu koofen inne Jeschäfte, keene Heizung, keen Licht und dauand Hunga. Wat die Alliierten, vor allem die Amis, als Reaktion uff die Blockade der Sowjets orjanisiert hab’n, war ne irre Leistung, die heute noch unsre jroße Dankbarkeit vadient. Doll find ick ooch, det der Rosinenbombapilot Gail Halvorsen zur Jubiläumsfeia nach Berlin jekomm‘n is. Mit 98 Lenzen is der fit wie’n Turnschuh. Wahrscheinlich bewundat der liebe Jott ooch die Helden der Luftbrücke.
+
+---
+
