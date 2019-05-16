@@ -1206,3 +1206,15 @@ Am Sonntach war’n wa bei Schwiejamutta zum Muttatachskäffchen. Da hab’n wa 
 
 ---
 
+`13.05.2019, 17:33`
+
+Donnawetta, Berlin setzt uff künstliche Intellijenz, hieß et jestan inna Schlachzeile. Na, da bin ick ja mal jespannt. Nachdem det mitta menschlichen Intellijenz in Senat und inna Vawaltung janz schön hapert, kann det ja mit Computan und Robottan nur bessa wern. Aba wie sachte Dichtavata Joehte in seina schier unerschöpflichen jöttlichen Intellijenz: Die Botschaft hör’ ick wohl, allein mir fehlt der Glaube… Wenn wa in Berlin noch nich ma öffentlichet Wlan hinkriejen und für jeden Behördenkram persönlich uffs Amt rennen und ne Numma ziehn müssen, statt det online zu erledijen, werd’ ick die Smart City wohl nich mehr erleben...
+
+---
+
+`15.05.2019, 22:57`
+
+Hätten Se jedacht, det in Berlins Schulen – nu nich jrade für Schönheit und Saubakeit berühmt – wertvolle Kunstwerke aus purem Jold rumstehn? Icke nich, aba die Diebe, die jetzt det jüldene Vojelnest aus ner Marzahner Schule jeklaut ham, wussten wohl bestens Bescheid. Zweemal hamset schon vasucht, und nu im dritten Anlauf hat’s jeklappt. Na ick wette, det jute Stück is schon im selben Schmelzofen vaschwunden wie die ausm Museum jeraubte Joldmünze. Villeicht warn’s ja die selben Übeltäta ausm stadtbekannten Clan. Det kostbaret Jold Langfinga anlockt, wundat nich. Bleibt nur die Frage: Wat hat det Edelmetall inna Schule zu suchen?
+
+---
+
